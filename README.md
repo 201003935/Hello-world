@@ -12,4 +12,4 @@ Minha formação em Psicologia me forneceu uma base sólida para compreender as 
 em ambientes de negócios e tecnológicos. Minha experiência em atendimento ao cliente e administração me permitiram desenvolver 
 habilidades importantes de comunicação e resolução de problemas.
 
-Estou determinado a vencer desafios e continuar evoluindo tanto em meu percurso profissional quanto acadêmico.
+Estou determinado a vencer desafios e continuar evoluindo tanto em meu percurso profissional quanto acadêmico!
